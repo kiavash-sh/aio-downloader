@@ -7,6 +7,1951 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/02 23:43
+---
+
+## VahidOOnLine — post 241802
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241802_1779567181.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان مونترآل، دوم خرداد ۱۴۰۵
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241801
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241801_1779567183.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد سرافراز، عضو شورای عالی فضای مجازی، گفت: «تجهیزات مربوط به قطع دائمی اینترنت از چین خریداری و وارد شده است.» او افزود: «اپراتورهای عضو شورای عالی فضای مجازی در پشت‌پرده تصویب طرح اینترنت پرو نقش دارند و ذی‌نفعان قطع اینترنت در بازار فروش فیلترشکن و اینترنت ویژه فعال هستند.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241800
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241800_1779567184.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ به گزارش سی‌ان‌ان، دونالد ترامپ، رئیس‌جمهوری آمریکا، عصر روز شنبه دوم خرداد در یک نشست تلفنی با رهبران کشورهای حوزه خلیج فارس و دیگر مقامات منطقه، به بررسی آخرین پیشنهاد جمهوری اسلامی برای پایان دادن به جنگ پرداخت. این رایزنی‌ها در حالی صورت می‌گیرد که میانجی‌ها پس از پایان جلسات خود در تهران، از نزدیک شدن به یک چارچوب برای توافق احتمالی خبر داده‌اند.
+
+یک منبع منطقه‌ای به سی‌ان‌ان گفت که در این تماس تلفنی، مقامات ارشد کشورهای خلیج فارس، پاکستان، ترکیه و مصر حضور داشته‌اند. هم‌زمان، جی‌دی ونس، معاون رئیس‌جمهوری آمریکا، در کاخ سفید دیده شده و ترامپ نیز از برنامه‌اش برای گفتگو با استیو ویتکاف و جرد کوشنر خبر داده است.
+
+از سوی دیگر، یک منبع اسرائیلی به سی‌ان‌ان اعلام کرد که بنیامین نتانیاهو، نخست‌وزیر اسرائیل، قرار است شنبه‌شب یک نشست امنیتی محدود با حضور برخی وزرا و مقامات دفاعی برگزار کند تا تحولات مربوط به مذاکرات تهران و واشنگتن که تل‌آویو از آن کنار گذاشته شده را بررسی کنند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241799
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241799_1779567185.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد کل نیروهای مسلح جمهوری اسلامی در بیانیه‌ای نوشت: «این مسیر پرفروغ و نورانی ادامه خواهد یافت و مسلمانان و آزادی‌خواهان جهان، طعم شیرین نجات از شر شیاطین عالم، به ویژه آمریکا و اسرائیل را خواهند چشید و به فتوحات بیشتری نائل خواهند شد.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241798
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدیس نظری
+۷ ساله بود.
+
+عاشق اسکیت بود.
+عاشق شعر خواندن.
+شاهنامه...
+
+۹ اسفند،
+در حمله به مدرسه شجره طیبه میناب،
+او و ۱۲۰ کودک دیگر
+جانشان را از دست دادند
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241797
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241797_1779567185.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران؛
+«مرسی که همیشه صدای ما بودید»
+‌🏁 🇬🇧 ManotoTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241796
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241796_1779567187.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ کاظم غریب‌آبادی، معاون وزیر امور خارجه جمهوری اسلامی، در پی پایان بدون نتیجه و دست نیافتن به توافق در یازدهمین نشست بازنگری پیمان منع گسترش سلاح‌های هسته‌ای (NPT)، ایالات متحده، کشورهای غربی و اسرائیل را مقصر این ناکامی دانست.
+
+غریب‌آبادی در پیامی در شبکه اجتماعی ایکس نوشت که دولت‌های غربی تلاش کردند «جای متجاوز و قربانی را عوض کنند». او همچنین از حملات مشترک آمریکا و اسرائیل به تاسیسات هسته‌ای ایران به شدت انتقاد کرد.
+
+معاون وزیر خارجه جمهوری اسلامی در خصوص خروجی این نشست تاکید کرد: «مسئولیت این شکست بر عهده این کشورهاست. ایران به آن‌ها اجازه نخواهد داد که به سوءاستفاده ابزاری و لجام‌گسیخته خود از مجامع و اسناد بین‌المللی برای رسیدن به اهداف سیاسی‌شان ادامه دهند.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241795
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241795_1779567188.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد بیژن کاظمی، زندانی سیاسی محبوس در زندان اوین، با حکم شعبه ۱۵ دادگاه انقلاب تهران در مجموع به ۳۷ سال و شش ماه حبس محکوم شد.
+
+بیژن کاظمی، زندانی سیاسی پس از کشته شدن محمد مقیسه و علی رازینی، دو قاضی دیوان عالی کشور در ۳۰ دی‌ماه ۱۴۰۳، در شهرستان کوهدشت بازداشت شده بود.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241794
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️مهدی تاج، رئیس فدراسیون فوتبال جمهوری اسلامی، روز شنبه دوم خردادماه اعلام کرد تیم ملی در جریان جام جهانی ۲۰۲۶ در شهر تیخوانا مکزیک، در نزدیکی مرز آمریکا، مستقر خواهد شد.
+او گفت این تصمیم با تایید فیفا و به‌دلیل مشکلات مربوط به صدور ویزا برای ورود به آمریکا اتخاذ شده و تیم ملی می‌تواند به‌صورت مستقیم با پروازهای «ایران‌ایر» به مکزیک سفر کند.
+بر اساس برنامه مسابقات، ایران در دو دیدار نخست خود در مرحله گروهی در لس‌آنجلس مقابل نیوزیلند و بلژیک به میدان می‌رود و سپس در سیاتل با مصر دیدار خواهد کرد. تاج همچنین تأکید کرد نزدیکی تیخوانا به محل برگزاری مسابقات، یکی از دلایل انتخاب این شهر به‌عنوان محل اردوی تمرینی بوده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241793
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241793_1779567188.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ لیندزی گراهام، سناتور جمهوری‌خواه روز شنبه دوم خرداد، در پی انتشار اخبار مربوط به توافق احتمالی با جمهوری اسلامی، منطق دستیابی به چنین تفاهمی را زیر سوال برد و آن را یک «کابوس» برای اسرائیل توصیف کرد.
+
+گراهام که از حامیان سرشناس از سرگیری حملات آمریکا به ایران است، در شبکه اجتماعی ایکس نوشت: «اگر قرار باشد توافقی برای پایان دادن به درگیری‌ها امضا شود، با این فرض که نمی‌توان از تنگه هرمز در برابر تروریسم ایران محافظت کرد و ایران همچنان توانایی نابودی زیرساخت‌های نفتی خلیج فارس را دارد، در این صورت ایران به عنوان یک قدرت مسلط که نیازمند راهکار دیپلماتیک است، دیده خواهد شد.»
+
+او این توافق را مایه تغییر توازن قوا به نفع تهران دانست و افزود: «این برداشت که ایران می‌تواند برای همیشه به ترور در تنگه هرمز ادامه دهد و به زیرساخت‌های نفتی آسیب بزند، در طول زمان یک کابوس برای اسرائیل خواهد بود.»
+
+گراهام در پایان با ابراز تردید نسبت به ناتوانی در مهار نظامی جمهوری اسلامی گفت: «اگر این برداشت‌ها درست باشد، این سوال پیش می‌آید که اصلا چرا جنگ را شروع کردیم؟»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241792
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241792_1779567189.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، گفت: «تا آخرین لحظه دست از عملیات برنداشتیم. با موشک‌ها و پهپادها برابر دشمن که مجهز به تسلیحات پیشرفته است، مقاومت کردیم.» او گفت: «با نابودی کامل اسرائیل منطقه جای آرام‌تری خواهد بود.»
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241791
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241791_1779567190.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️ راجر ویکر ، سناتور جمهوری‌خواه، از ایالت می‌سی‌سی‌پی و رئیس کمیته قدرتمند نیروهای مسلح سنای آمریکا، توافق احتمالی با جمهوری اسلامی را یک «فاجعه» توصیف کرد.
+
+ویکر از منتقدان سرشناس مذاکره برای دستیابی به توافق با تهران است و همواره خواستار از سرگیری بمباران‌های گسترده علیه ایران بوده است.
+
+ویکر در حساب کاربری خود در شبکه اجتماعی ایکس نوشت: «شایعات درباره آتش‌بس ۶۰ روزه با این باور که ایران روزی با حسن نیت وارد تعامل خواهد شد، یک فاجعه است. با این کار، تمام دستاوردهای عملیات خشم حماسی به باد خواهد رفت!»
+
+ویکر روز جمعه نیز تاکید کرده بود که به ترامپ برای پیگیری این توافق «مشاوره‌های غلطی داده شده» و این تصمیم، «میراث دوران ریاست‌جمهوری ترامپ را تعریف خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12249
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار العربیه: مقر گروه‌های مخالف نظام ایران در «وادی آلانه» در اربیل با 4 پهپاد هدف حمله قرار گرفت.
+@withyashar
+</div>
+
+## WithYashar — post 12248
+
+
+
+
+## WithYashar — post 12247
+
+<div align="center">
+  <a href="telegram/content/WithYashar_12247_1779567190.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیت رهبری رو جوری زدن که شده بیابان
+@withyashar
+</div>
+
+## WithYashar — post 12246
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+رویترز:
+یک چارچوب سه مرحله‌ای برای مذاکرات آمریکا و ایران پیشنهاد شده:
+پایان رسمی جنگ.
+حل و فصل بن‌بست تنگه هرمز .
+باز کردن پنجره مذاکره ۳۰ روزه برای توافقی گسترده‌تر.
+امکان تمدید آتش بس نیز وجود دارد.
+@withyashar
+</div>
+
+## WithYashar — post 12245
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کنسول جمهوری آذربایجان در تبریز بر اثر تصادف در اتوبان جلفا-تبریز جان باخت.
+@withyashar
+</div>
+
+## WithYashar — post 12244
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سناتور لیندسی گراهام:
+اگه با ایران توافق کنیم فقط بخاطر اینه که چون فهمیدیم نمی‌تونیم تنگه هرمز رو از دست ایران حفظ کنیم و ایران هنوز هم میتونه زیرساخت‌های نفتی خلیج فارس رو نابود کنه؛ یعنی اون‌وقت ایران به‌عنوان قدرت غالب منطقه شناخته میشه و همه مجبور میشن باهاش دیپلماتیک کنار بیان.
+
+اینکه ایران بتونه همیشه تنگه هرمز رو به‌هم بریزه و همزمان توان ضربه سنگین به نفت خلیج فارس رو داشته باشه، موازنه قدرت منطقه رو کامل عوض میکنه و در آینده واسه اسرائیل تبدیل به کابوس میشه.
+
+من شخصاً قبول ندارم که نشه جلوی توان ایران رو گرفت یا منطقه نتونه از خودش در برابر قدرت نظامی ایران دفاع کنه. باید خیلی حواسمون باشه که این قضیه رو خراب نکنیم.
+@withyashar
+</div>
+
+## WithYashar — post 12243
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+خبرنگار لبنانی در شبکه سه: حزب‌الله بر روی نابودکردن گنبد آهنین اسرائیل تمرکز کرده است!
+@withyashar
+</div>
+
+## WithYashar — post 12242
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+توییت مارک لوین:
+شما متحدی را که در یک عملیات نظامی بزرگ در کنار شما جنگیده است، کنار نمی‌گذارید. یا این فقط یکی دیگر از فهرست طولانی تهمت‌ها علیه نتانیاهو است که نیویورک تایمز و جروزالم پست بدنام از او متنفرند، یا یک اشتباه استراتژیک بسیار بزرگ است.
+@withyashar
+</div>
+
+## WithYashar — post 12241
+
+
+
+
+## WithYashar — post 12240
+
+
+
+
+## WithYashar — post 12239
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+پرواز گسترده جنگنده های آمریکایی در نزدیکی مرز ایران
+
+@withyashar
+</div>
+
+## WithYashar — post 12238
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+علی خضریان، عضو کمیسیون امنیت ملی مجلس : در هر توافقی ایران حتما باید غرامت جنگ را دریافت کند.
+شرایط تنگه هرمز به قبل از جنگ برنخواهد گشت این دستاورد و مطالبه رهبری است .
+مطالبه ملت ایران است که از مدیریت تنگه هرمز عقب‌نشینی نشود
+@withyashar
+</div>
+
+## WithYashar — post 12237
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+گروه کرد ایرانی کومله می‌گوید پهپادها کمی پیش پایگاه‌های آن را در استان اربیل، کردستان عراق، مورد حمله قرار دادند، در حالی که پهپادهایی توسط «هواپیماهای ائتلاف» سرنگون شدند.
+@withyashar
+</div>
+
+## WithYashar — post 12236
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همین الان دارن میجنگن فقط تو عراق 😂
+</div>
+
+## WithYashar — post 12235
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+جنگنده‌های نیروی هوایی ایالات متحده در حال حاضر بر فراز منطقه خلیفان در استان اربیل در شمال عراق پرواز می‌کنند تا پهپادهای ایرانی را که گروه‌های مخالف کرد-ایرانی در منطقه را هدف قرار داده‌اند، رهگیری کنند.
+@withyashar
+</div>
+
+## WithYashar — post 12234
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فاکس نیوز:هنوز هیچ توافقی بین رژیم جمهوری اسلامی و آمریکا صورت نگرفته
+
+@withyashar
+</div>
+
+## WithYashar — post 12233
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار جان این ترامپ اشتباهی بجای اینکه مارو ببره قاهره داره میبره بورکینافاسو 😂😂😂
+</div>
+
+## WithYashar — post 12232
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یاشار جان این ترامپ اشتباهی بجای اینکه مارو ببره قاهره داره میبره بورکینافاسو 😂😂😂
+</div>
+
+## mwarmonitor — post 9581
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک منبع منطقه‌ای گفت تمام رهبران عرب و مسلمان که روز شنبه در تماس با ترامپ بودند، از او خواستند توافق را پیش ببرد تا جنگ پایان یابد و تنش در منطقه کاهش پیدا کند. 🚨 این منبع گفت: «پیام همه این بود که لطفاً جنگ را به خاطر منافع کل منطقه متوقف کنید.» 🚨 به…
+</div>
+
+## mwarmonitor — post 9580
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🚨 یک منبع منطقه‌ای گفت تمام رهبران عرب و مسلمان که روز شنبه در تماس با ترامپ بودند، از او خواستند توافق را پیش ببرد تا جنگ پایان یابد و تنش در منطقه کاهش پیدا کند.
+
+🚨 این منبع گفت: «پیام همه این بود که لطفاً جنگ را به خاطر منافع کل منطقه متوقف کنید.»
+
+🚨 به گفته این منبع منطقه‌ای، مذاکرات به‌خوبی در حال پیشرفت است و میانجی‌ها امیدوارند فردا چارچوب یک‌صفحه‌ای توافق را نهایی کرده و آن را اعلام کنند.
+
+🚨 سپس میانجی‌ها قصد دارند چند روز بعد مذاکرات برای یک توافق تفصیلی و جزئی را آغاز کنند، این منبع منطقه‌ای گفت. باراک راوید
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9579
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام ؛ اگر در منطقه این برداشت وجود داشته باشد که توافق با ایران باعث می‌شود این رژیم پابرجا بماند و در طول زمان قدرتمندتر شود، ما در واقع بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم. 🔸توافقی که چنین برداشتی ایجاد کند مبنی بر اینکه…
+</div>
+
+## mwarmonitor — post 9578
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام ؛ اگر در منطقه این برداشت وجود داشته باشد که توافق با ایران باعث می‌شود این رژیم پابرجا بماند و در طول زمان قدرتمندتر شود، ما در واقع بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم.
+
+🔸توافقی که چنین برداشتی ایجاد کند مبنی بر اینکه ایران می‌تواند باقی بماند و در آینده توان کنترل تنگه را داشته باشد، حزب‌الله در لبنان و شبه‌نظامیان شیعه در عراق را بسیار تقویت خواهد کرد.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9577
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9577_1779567192.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸اوکراین: سفارت ایالات متحده در کی‌یف اطلاعاتی دریافت کرده است مبنی بر اینکه ممکن است طی ۲۴ ساعت آینده یک حمله هوایی قابل توجه در هر لحظه رخ دهد.
+
+🔹این سفارتخانه، مانند همیشه، به شهروندان آمریکایی توصیه می‌کند در صورت اعلام هشدار حمله هوایی، فوراً برای پناه گرفتن آماده باشند.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9576
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴«تماس بسیار مثبت بود. پیشرفت خوبی در حال انجام است»، یک دیپلمات منطقه‌ای به فاکس نیوز گفت. «رهبران منطقه از این پیشرفت و همچنین از دستاوردی که رئیس‌جمهور ترامپ در مذاکرات به آن رسیده حمایت کردند.»
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9575
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر ایران در پاکستان: با خوش‌بینی محتاطانه می‌توان امیدوار بود که اگر طرف مقابل تعهد کافی نشان دهد، گام‌های مثبتی در حال شکل‌گیری است.
+
+@mwarmonitor
+</div>
+
+## mwarmonitor — post 9574
+
+<div align="center">
+  <img src="telegram/content/mwarmonitor_9574_1779567193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸ملوانان و تفنگداران دریایی آمریکا در ناو USS Tripoli (LHA-7) در حالی که این ناو در حال عبور از دریای عرب است، عملیات پروازی انجام می‌دهند.
+
+@mwarmonitor
+</div>
+
+## FoxNewsTwitter — post 342168
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342168_1779567193.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+"You will be the tip of the spear."
+
+The Army has now hit its 2026 recruiting goal months ahead of schedule, according to War Secretary Pete Hegseth.
+
+During a commencement speech at West Point, Hegseth announced the Army reached the milestone four months early and said the service is preparing to bring in 61,500 new soldiers.
+
+The announcement comes as the Pentagon faces mounting global tensions and renewed focus on military readiness.
+</div>
+
+## pm_afshaa — post 91326
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91326_1779567194.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز: گفتگوی ترامپ با رهبران کشورهای عربی «بسیار مثبت» بود.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91325
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91325_1779567195.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه i24NEWS: اسرائیل خودش رو برای سناریویی آماده میکنه که در آن باید به تنهایی با تهدید موشکی ایران مقابله کنه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91324
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91324_1779567195.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴رسانه i24NEWS: اسرائیل خودش رو برای سناریویی آماده میکنه که در آن باید به تنهایی با تهدید موشکی ایران مقابله کنه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91323
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91323_1779567196.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام: اگه با ایران توافق کنیم فقط بخاطر اینه که چون فهمیدیم نمی‌تونیم تنگه هرمز رو از دست ایران حفظ کنیم و ایران هنوز هم میتونه زیرساخت‌های نفتی خلیج فارس رو نابود کنه؛ یعنی اون‌وقت ایران به‌عنوان قدرت غالب منطقه شناخته میشه و همه مجبور میشن…
+</div>
+
+## pm_afshaa — post 91322
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سری قبلی هم‌ گفتم بازم میگم
+هر وقت خبر توافق بالا گرفت بیشتر به جنگ امیدوار باش..
+
+توافق نهایی شدنی نیست نهایت همین آتش‌بس ۶۰ روزه رو اعلام میکنن که جنگ بره واسه بعد جام جهانی
+
+همه میدونیم جمهوری اسلامی تسلیم بشو نیست و ترامپ هم ول کن نیست و پیروزی قاطع میخواد.
+
+فقط موضوع اینه که قبل جام جهانی یا بعدش..
+</div>
+
+## pm_afshaa — post 91321
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91321_1779567196.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام: برخی رهبران منطقه از ترامپ خواستن برای تضعیف جمهوری اسلامی اقدام نظامی انجام بده تا توافق بهتری حاصل بشه. 
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom 
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91320
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91320_1779567197.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سناتور لیندسی گراهام:
+برخی رهبران منطقه از ترامپ خواستن برای تضعیف جمهوری اسلامی اقدام نظامی انجام بده تا توافق بهتری حاصل بشه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91319
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91319_1779567197.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴سفیر ایران در پاکستان:
+با خوش‌بینی محتاطانه میشه امیدوار بود که اگه طرف مقابل تعهد کافی نشون بده، گام‌های مثبتی در حال شکل‌گیریه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91318
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴تماس تلفنی بی بی با ترامپ شروع شد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91317
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91317_1779567198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴توییت اتاق جنگ اسرائیل:
+⌛️
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91316
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91316_1779567198.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴واشنگتن‌تایمز به نقل از یک منبع نزدیک به مذاکرات: آمریکا و ایران احتمالا طی 24 ساعت آینده نهایی‌شدن توافق صلح رو اعلام می‌کنن.
+
+مذاکره‌کنندگان پیش‌نویس پایان درگیری‌ها در همه جبهه‌ها رو تایید کردن، اما توافق هنوز نیازمند تایید نهایی دو طرفه.
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91315
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پرواز گسترده جنگنده های آمریکایی در نزدیکی مرز ایران
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91314
+
+<div align="center">
+  <a href="telegram/content/pm_afshaa_91314_1779567199.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مونترال کانادا
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91313
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+العربیه : چیزی تا نهایی شدن توافق میان آمریکا و ایران نمانده
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91312
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سردار نقدی : هرگونه تجاوز دشمن با ضربات جبران‌ناپذیر جواب داده میشه
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91311
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔐 سرور اختصاصی ترکیه با پینگ فوق‌العاده پایین
+مناسب گیم، ترید، استریم و استفاده حرفه‌ای
+
+✅ سرعت و کیفیت عالی
+
+✅ آی‌پی ترکیه واقعی
+
+✅ پایداری بالا و بدون قطعی
+
+✅ مناسب استفاده 24/7
+
+✅ بدون محدودیت زمان و بدون ضریب
+
+
+💰 قیمت تک: هر گیگ 150 هزار تومان
+
+
+🤝 قیمت همکاری: هر گیگ فقط 120 هزار تومان
+
+با ضمانت عودت وجه در صورت قطعی
+🙏
+برای تست و ثبت سفارش پیام بدید 
+✉️:
+@V2rayyar_sup
+@v2rayyar
+</div>
+
+## pm_afshaa — post 91310
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فاکس نیوز:هنوز هیچ توافقی بین رژیم جمهوری اسلامی و آمریکا صورت نگرفته
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## pm_afshaa — post 91309
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴ترامپ نیم ساعت دیگر با رهبران عرب کنفرانس تلفنی انجام خواهد داد
+
+
+💧 Rainbet.com the #1 Non-KYC Crypto Casino & Sportsbook @rainbetcom
+
+😁 @Pm_Afshaa
+</div>
+
+## DEJradio — post 4889
+
+<div align="center">
+  <img src="telegram/content/DEJradio_4889_1779567200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👑
+⭕️ شاهزاده رضا پهلوی در پیامی در حساب کاربری خود در شبکهٔ ایکس، از دیدار و گفت‌وگوی خود با جاش گاتهایمر، نمایندهٔ کنگره آمریکا، خبر دادند. ایشان با قدردانی از مواضع این نماینده دربارهٔ ایران، تأکید کردند در این دیدار دربارهٔ اهمیت حمایت دوحزبی از مردم ایران گفت‌وگو شده است.
+شاهزاده رضا پهلوی همچنین تصریح کردند مردم ایران تنها برای آزادی کشور خود مبارزه نمی‌کنند، بلکه در تلاش هستند تروریسم جمهوری اسلامی علیه جهان را نیز پایان دهند.
+
+#شاهزاده_رضا_پهلوی #کنگره_آمریکا
+@DEJradio
+</div>
+
+## VahidOnline — post 75659
+
+<div align="center">
+  <img src="telegram/content/VahidOnline_75659_1779567200.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دونالد ترامپ، رییس‌جمهوری آمریکا، روز شنبه دوم خرداد ۱۴۰۵ در تماس‌هایی جداگانه با رهبران عربستان سعودی، امارات، قطر، مصر، ترکیه، پاکستان و فرانسه درباره توافق احتمالی برای پایان جنگ با جمهوری اسلامی گفت‌وگو کرد. همزمان یک مقام آمریکایی آگاه از روند مذاکرات گفت واشنگتن و تهران به دستیابی به توافق نزدیک شده‌اند و اختلاف‌های باقی‌مانده عمدتا بر سر نحوه نگارش برخی بندهای توافق است.
+
+به گزارش اکسیوس، چند تن از رهبران حاضر در تماس با ترامپ از او خواسته‌اند مسیر دستیابی به توافق را دنبال کند. با این حال، این مقام آمریکایی تاکید کرده است که هنوز تصمیم نهایی از سوی رییس‌جمهوری آمریکا اتخاذ نشده و او همچنان می‌تواند توافق را رد کرده و دستور حملات جدید علیه ایران را صادر کند.
+
+همزمان، جی‌دی ونس، معاون رییس‌جمهوری آمریکا، و پیت هگست، وزیر دفاع این کشور، برای شرکت در نشست ویژه بررسی توافق احتمالی به واشینگتن فراخوانده شدند. ترامپ پیش‌تر گفته بود پس از بررسی آخرین پیشنهاد ایران با تیم مذاکره‌کننده خود، احتمالا تا روز یکشنبه درباره ادامه مذاکرات یا ازسرگیری جنگ تصمیم خواهد گرفت.
+
+به گفته منابع آگاه، پیش‌نویس جدیدی که قرار است ترامپ آن را بررسی کند، حاصل مذاکرات اخیر میان ایران و پاکستان است.
+@VahidHeadline
+
+📡 @VahidOnline
+</div>
+
+## kianmeli1 — post 87616
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴این توافق احتمالی چه پیروزی برای ترامپ دارد!
+
+۱-رهبری پیر در اوج نفرت تبدیل به شهید شد
+۲-فرزندش بر تخت نشست
+۳-تنگه هرمز بسته شد
+۴-تمام پایگاه های امریکایی پودر شدند
+۵-تخم کشورهای عربی کشیده شد
+۶-اورانیوم ها در ایران ماند
+۷-نفت ۱۰۰ دلاری
+
+اگر پیروزی ترامپ نیست پس چیست
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87615
+
+<div align="center">
+  <img src="telegram/content/kianmeli1_87615_1779567201.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴بنا به گزارش‌ها، تماس تلفنی امروز بین رئیس جمهور ترامپ و رهبران عرب به پایان رسیده است و یک دیپلمات منطقه‌ای به فاکس نیوز گفته است که این تماس «بسیار مثبت» بوده و «پیشرفت خوبی حاصل شده است.» وی افزود: «رهبران منطقه‌ای از پیشرفت و موفقیتی که رئیس جمهور ترامپ در مذاکرات [با ایران] به دست آورده است، حمایت کردند.»
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87614
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴سازمان هواپیمایی کشوری: فرودگاه‌های اصفهان، اردبیل و لامرد از یکشنبه سه خرداد فعالیت خود را از سر می‌گیرند.
+‏این سازمان اعلام کرد در حال حاضر هیچ محدودیت تازه‌ای در فضای هوایی کشور اعمال نشده است
+https://t.me/kianmeli1
+</div>
+
+## kianmeli1 — post 87613
+
+<div align="center">
+  <a href="telegram/content/kianmeli1_87613_1779567201.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‏🔴برخی رسانه‌های ایران از حمله موشکی از سوی جمهوری اسلامی به اربیل کردستان عراق خبر دادند https://t.me/kianmeli1
+</div>
+
+## IranIntlTV — post 338657
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338657_1779567202.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد سرافراز، عضو شورای عالی فضای مجازی، گفت: «تجهیزات مربوط به قطع دائمی اینترنت از چین خریداری و وارد شده است.» او افزود: «اپراتورهای عضو شورای عالی فضای مجازی در پشت‌پرده تصویب طرح اینترنت پرو نقش دارند و ذی‌نفعان قطع اینترنت در بازار فروش فیلترشکن و اینترنت ویژه فعال هستند.»
+https://iranintl.com/202605235937
+</div>
+
+## IranIntlTV — post 338656
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338656" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی چشم‌انداز: تاثیرات بن لادن بر سبک زندگی مجتبی خامنه‌ای
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338655
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338655_1779567203.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاثیرات بن لادن بر سبک زندگی مجتبی خامنه‌ای
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/oPPdjYWeEIE
+@iranintltv
+</div>
+
+## IranIntlTV — post 338654
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338654_1779567205.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تاثیرات بن لادن بر سبک زندگی مجتبی خامنه‌ای
+
+چشم‌انداز با مهدی مهدوی‌آزاد
+
+نسخه کامل این برنامه در یوتیوب:
+https://youtu.be/oPPdjYWeEIE
+@iranintltv
+</div>
+
+## IranIntlTV — post 338653
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338653_1779567207.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ستاد کل نیروهای مسلح جمهوری اسلامی در بیانیه‌ای نوشت: «این مسیر پرفروغ و نورانی ادامه خواهد یافت و مسلمانان و آزادی‌خواهان جهان، طعم شیرین نجات از شر شیاطین عالم، به ویژه آمریکا و اسرائیل را خواهند چشید و به فتوحات بیشتری نائل خواهند شد.»
+https://iranintl.com/202605233697
+</div>
+
+## IranIntlTV — post 338652
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338652_1779567208.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+سایت هرانا گزارش داد بیژن کاظمی، زندانی سیاسی محبوس در زندان اوین، با حکم شعبه ۱۵ دادگاه انقلاب تهران در مجموع به ۳۷ سال و شش ماه حبس محکوم شد.
+
+بیژن کاظمی، زندانی سیاسی پس از کشته شدن محمد مقیسه و علی رازینی، دو قاضی دیوان عالی کشور در ۳۰ دی‌ماه ۱۴۰۳، در شهرستان کوهدشت بازداشت شده بود.
+https://iranintl.com/202605234393
+</div>
+
+## IranIntlTV — post 338651
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338651_1779567209.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+در برنامه‌ای زنده در صداوسیما، زنی که ادعا می‌شود همسایه بیت علی خامنه‌ای، رهبر کشته‌شده جمهوری اسلامی، بوده در پاسخ به مجری که از او می‌پرسد چه اتفاقی برای «بیت رهبری» افتاده است، می‌گوید: «اگر از پشت‌بام نگاه کنی، تلی از خاک می‌بینی. منطقه [خامنه‌ای] خیلی سرسبز بود، اما حالا به بیابانی بی‌درخت تبدیل شده و فقط خاک است. درختی هم نیست.»
+@iranintltv
+</div>
+
+## IranIntlTV — post 338650
+
+<div align="center">
+  <a href="https://t.me/IranintlTV/338650" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🎧نسخه صوتی تیتراول با نیوشا صارمی: ترامپ: شانس توافق با جمهوری اسلامی یا نابودی کامل آن‌ها پنجاه-پنجاه است
+@iranintlTV
+</div>
+
+## IranIntlTV — post 338649
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338649_1779567210.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+محمد اکرمی‌نیا، سخنگوی ارتش جمهوری اسلامی، گفت: «تا آخرین لحظه دست از عملیات برنداشتیم. با موشک‌ها و پهپادها برابر دشمن که مجهز به تسلیحات پیشرفته است، مقاومت کردیم.» او گفت: «با نابودی کامل اسرائیل منطقه جای آرام‌تری خواهد بود.»
+https://iranintl.com/202605236138
+</div>
+
+## Shin_Persian — post 6171
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Shin ✓ @hey_itsmyturn
+Sat, 23 May 2026 19:27:12 UTC
+
+PM @netanyahu on the phone with @POTUS - Reports
+
+فارسی
+
+گزارش‌ها: نخست‌وزیر @netanyahu در حال گفتگو با @POTUS (رئیس‌جمهور ایالات متحده) است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6170
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Gordo ✓ @GordoCDA
+Sat, 23 May 2026 18:40:42 UTC
+
+Fox News is reporting that no deal has been made with the Iranians.
+
+فارسی
+
+فاکس نیوز گزارش می‌دهد که هیچ توافقی با ایرانی‌ها حاصل نشده است.
+
+𝕏 · @shin_persian
+</div>
+
+## Shin_Persian — post 6169
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6169_1779567211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet: Shin ✓ @hey_itsmyturn Fri, 22 May 2026 19:46:10 UTC Intense jet activity over Eastern Iraq, near Iranian western borders. #Iraq 🇮🇶 ↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید. فارسی فعالیت شدید جت‌های جنگنده برفراز شرق عراق،…
+</div>
+
+## Shin_Persian — post 6168
+
+<div align="center">
+  <img src="telegram/content/Shin_Persian_6168_1779567211.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+↩️ Quoted tweet:
+Shin ✓ @hey_itsmyturn
+Fri, 22 May 2026 19:46:10 UTC
+
+Intense jet activity over Eastern Iraq, near Iranian western borders.
+#Iraq 🇮🇶
+
+↩️ توییت نقل‌قول شده — برای پاسخ، پست زیر را ببینید.
+
+فارسی
+
+فعالیت شدید جت‌های جنگنده برفراز شرق عراق، در نزدیکی مرزهای غربی ایران.
+#Iraq 🇮🇶
+
+𝕏 · @shin_persian
+</div>
+
+## ManotoTV — post 105783
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105783_1779567212.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان مونترآل، دوم خرداد ۱۴۰۵
+</div>
+
+## ManotoTV — post 105782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدیس نظری
+۷ ساله بود.
+
+عاشق اسکیت بود.
+عاشق شعر خواندن.
+شاهنامه...
+
+۹ اسفند،
+در حمله به مدرسه شجره طیبه میناب،
+او و ۱۲۰ کودک دیگر
+جانشان را از دست دادند
+</div>
+
+## ManotoTV — post 105781
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105781_1779567213.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران؛
+«مرسی که همیشه صدای ما بودید»
+</div>
+
+## FarsiVOA — post 218473
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺جمهوری‌خواهان مجلس نمایندگان: تلاش گزارش‌شده برای ترور ایوانکا ترامپ «چهره واقعی» جمهوری اسلامی را نشان می‌دهد
+
+▪️جمهوری‌خواهان مجلس نمایندگان آمریکا روز شنبه ۲ خرداد با انتشار بیانیه‌ای، به گزارش‌های منتشر شده درباره توطئه یک تبعه عراقی آموزش دیده سپاه برای ترور ایوانکا ترامپ، دختر رئیس جمهوری آمریکا، واکنش نشان دادند.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-iavanka-trump-assassination-irgc-terror-ghasem-soleimani-/8153076.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218472
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️رئیس جمهوری آمریکا می‌گوید طرح ‌پیشنهادی جمهوری اسلامی را دریافت‌ کرده و در مورد آن تصمیم‌ می‌گیرد
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218471
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش | روایت اعدام عبدالجلیل شه‌بخش؛ از روستای چاه احمد تا اعترافات تلویزیونی
+
+▪️عبدالجلیل شه‌بخش، زندانی سیاسی، روز ۲۲ اردیبهشت ۱۴۰۵ اعدام شد. بنا بر برخی گزارش‌ها، او ۲۶ ساله، پدر دو کودک خردسال و اهل روستای چاه احمد بود.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/iran-baloch-sistan-execution-abdoljalil-shahbakhsh-prison/8153055.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218470
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گروهی از دانش‌آموزان در شهرهای دورود، یاسوج، خرم‌آبا‌‌د، و بر‌وجرد تجمع‌های اعتراضی برگزار کردند و خواستند امتحانات‌شان به طور مجازی برگزار شود.
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218469
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگو با دکتر بابک خطی برای بررسی دلایل بحران دارو در ایران؛ سوء مدیریت، مافیای دارو یا مشکل واردات؟
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218468
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگو با حسن هاشمیان درباره تلاش‌های دیپلماتیک برای توافق و تماس‌های پاکستان و قطر با مقام‌های جمهوری اسلامی
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218467
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گفت‌وگو با علیرضا فیروزی درباره پیامدهای بیش از دوهزار ساعت قطع اینترنت در ایران، از جمله اختلال در ارتباطات، آموزش، و کسب‌وکار.
+@FarsiVOA
+</div>
+
+## DW_Farsi — post 125064
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔶 نشست نتانیاهو با رهبران احزاب و مقام‌های امنیتی اسرائیل درباره توافق احتمالی میان آمریکا و جمهوری اسلامی
+
+کانال ۱۲ اسرائیل گزارش داد بنیامین نتانیاهو، نخست وزیر اسرائیل، قرار است شامگاه شنبه ۲۳ مه (۲ خرداد) رهبران احزاب ائتلاف و مقام‌های امنیتی این کشور را برای گفت‌وگو درباره توافقی که میان آمریکا و جمهوری اسلامی برای پایان دادن به جنگ در حال شکل‌گیری است، گرد هم آورد.
+
+این شبکه مفاد گزارش‌شده این توافق را برای اسرائیل "بسیار بد" توصیف کرد.
+
+در این گزارش به نقل از یک مقام اسرائیلی که نامش فاش نشده آمده است استیو ویتکاف، فرستاده آمریکا، بیش از همه برای آن تلاش می‌کند که ترامپ این توافق را بپذیرد.
+
+به نوشته این گزارش، اسرائیل،  ویتکاف را بازیگر اصلی‌ای می‌داند که "تقریبا به هر قیمتی خواهان توافق است و فشار بسیار زیادی به ترامپ وارد می‌کند تا جنگ را از سر نگیرد."
+
+با این حال، گزارش می‌افزاید اگر مفاد منتشرشده این توافق درست باشد، در اسرائیل آن را چنان "بد" می‌دانند که به سختی می‌توان تصور کرد ترامپ با آن موافقت کند.
+
+به گفته این گزارش، این توافق "یک مشکل بسیار بزرگ برای اسرائیل" خواهد بود و "به شدت با آنچه نتانیاهو علنا گفته و حتی بیش از آن، با آنچه ترامپ تنها چند ساعت پیش علنا گفته، در تضاد است."
+
+کانال ۱۲ در توضیح بیشتر نوشت که این مفاد، بازگشایی تنگه هرمز از سوی ایران را در ازای دریافت امتیازهای مالی پیش‌بینی می‌کند، در حالی که قرار است درباره برنامه هسته‌ای جمهوری اسلامی و خارج کردن ذخایر اورانیوم غنی‌شده آن تازه در مرحله‌ای بعد گفت‌وگو شود.
+
+این گزارش افزود که برنامه موشک‌های بالستیک جمهوری اسلامی اصلا در دستور کار قرار ندارد.
+
+این گزارش در جمع‌بندی نوشت: «آمریکا نقدی پرداخت می‌کند، در حالی که ایران اگر اصلا چیزی بپردازد، نسیه خواهد پرداخت.»
+
+با این حال، گزارش ادامه می‌دهد که میان نتانیاهو و ترامپ "هماهنگی نزدیک" وجود دارد و "هیچ فاصله‌ای" میان آن دو نیست.
+
+این ادعا با گزارش نیویورک تایمز در اوایل امروز در تضاد است؛ گزارشی که گفته بود نتانیاهو "تقریبا به طور کامل" از روند مذاکرات کنار گذاشته شده است.
+
+ترامپ پیش‌تر روز شنبه به اکسیوس گفته بود: «برخی خیلی بیشتر ترجیح می‌دهند توافقی حاصل شود و برخی دیگر ترجیح می‌دهند جنگ از سر گرفته شود.»
+
+او همچنین گفته بود نتانیاهو "دو دل" است، اما این تصور را رد کرده بود که نخست وزیر اسرائیل نگران باشد او با یک توافق بد موافقت کند.
+
+گزارش اکسیوس به نقل از مقام‌های اسرائیلی گفته بود که نتانیاهو در واقع به شدت نگران توافق احتمالی است و از ترامپ خواسته دور تازه‌ای از حملات را آغاز کند.
+
+در همین حال باراک راوید، خبرنگار اکسیوس و کانال ۱۲، به این شبکه گفت ترامپ به او اطمینان داده که اگر توافق "برای اسرائیل خوب" نباشد، آن را نخواهد پذیرفت.
+
+در حال حاضر هیچ متن رسمی‌ای از این توافق منتشر نشده است، هرچند وبسایت العربیه روز گذشته متنی که آن را "پیش‌نویس نهایی" خوانده بود، منتشر کرد.
+
+سخنگوی وزارت امور خارجه جمهوری اسلامی پیش‌تر امروز گفته بود یادداشت تفاهمی که اکنون در دست بررسی است، به بازگشایی تدریجی تنگه هرمز، لغو محاصره آمریکا علیه بنادر ایران و آزادسازی دارایی‌های مسدودشده ایران خواهد پرداخت.
+
+او همچنین گفت مفاد این توافق یک دوره ۳۰ تا ۶۰ روزه بعدی را برای مذاکرات بر سر یک توافق تفصیلی پیش‌بینی می‌کند.
+
+@dw_farsi
+</div>
+
+## Persian_Trend_Official — post 14771
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14771_1779567215.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+▪️جهت مرور وقایع گذشته ...
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14770
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+من هیچ چیزی از رسانه خودم پاک نمیکنم
+زمانی که باور کردی جنگ نمیشه اتفاقا بهترین فرصته جنگ بشه
+بمونه به یادگار
+</div>
+
+## Persian_Trend_Official — post 14769
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14769_1779567216.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تا نتانیاهو هست محور مقاومت عمو ندارد !
+</div>
+
+## Persian_Trend_Official — post 14768
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+همه شواهد نشون میده برخلاف وانمود رسانه ها جنگ بسیار به ما نزدیکه
+</div>
+
+## Persian_Trend_Official — post 14767
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ساعت صفر نزدیک است
+</div>
+
+## Persian_Trend_Official — post 14766
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14766_1779567217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستش امشب اصلا حال جسمی خوبی ندارم اما این رو بهتون بگم بهم اعتماد داشته باشید به نظر من دور بعدی جنگ در راهه این خبر هایی که در مورد توافق گفته میشه احمقانست توافقی وجود نداره همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی…
+</div>
+
+## Persian_Trend_Official — post 14765
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال رسمی پرشین ترند pinned «راستش امشب اصلا حال جسمی خوبی ندارم اما این رو بهتون بگم بهم اعتماد داشته باشید به نظر من دور بعدی جنگ در راهه این خبر هایی که در مورد توافق گفته میشه احمقانست توافقی وجود نداره همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی…»
+</div>
+
+## Persian_Trend_Official — post 14764
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ اعضای ارشد تیم امنیت ملی آمریکا را به اتاق وضعیت کاخ سفید فراخواند
+
+💢گزارش‌ها حاکی است دونالد ترامپ معاون رئیس‌جمهور «جی‌دی ونس»، وزیر جنگ «پیت هگست»، رئیس ستاد مشترک ارتش ژنرال «دن کین» و تمامی اعضای شورای امنیت ملی آمریکا را به اتاق وضعیت (Situation Room) کاخ سفید فراخوانده است
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14763
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14763_1779567217.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راستش امشب اصلا حال جسمی خوبی ندارم
+اما این رو بهتون بگم
+بهم اعتماد داشته باشید
+به نظر من دور بعدی جنگ در راهه
+این خبر هایی که در مورد توافق گفته میشه احمقانست
+
+توافقی وجود نداره
+
+همه هدف این هست که غافلگیری بوحود بیارن وگرنه امکان توافق بین این تیم فعلی جمهوری اسلامی با تیم فعلی امریکا و اسرائیل وجود نداره !
+</div>
+
+## Persian_Trend_Official — post 14762
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢کانال اسرائیلی کان:
+
+💢«ساعت‌های حساس: در اسرائیل منتظرند ببینند آیا تلاش‌های دیپلماتیک فشرده، به ویژه از سوی پاکستان و قطر، به امضای یادداشت تفاهم بین ایران و ایالات متحده منجر خواهد شد یا نه.
+
+💢این در حالی است که نخست‌وزیر بنیامین نتانیاهو به سمت ازسرگیری جنگ و حملات علیه ایران فشار آورده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14761
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14761_1779567218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 ترامپ در حال برگزاری نشست امنیت ملی درباره ایران است
+
+💢گزارش‌ها حاکی است دونالد ترامپ هم‌اکنون در کاخ سفید ریاست یک نشست امنیت ملی را برعهده دارد؛ نشستی که همزمان با پیشرفت مذاکرات ایران و آمریکا و احتمال توافق بر سر «یادداشت تفاهم» برگزار می‌شود.
+
+بر اساس گزارش رسانه‌های آمریکایی:
+
+▪️ این نشست با حضور مقام‌های ارشد امنیتی، اطلاعاتی و نظامی آمریکا برگزار شده است
+▪️ محور اصلی گفت‌وگوها، بررسی پیش‌نویس توافق و تصمیم‌گیری درباره ادامه مسیر مذاکرات یا بازگشت به گزینه نظامی است
+▪️ ترامپ طی ساعات اخیر گفته بود «مذاکرات بسیار به توافق نزدیک شده‌اند» و پیش‌نویس توافق را مطالعه کرده است.
+
+همزمان:
+
+▪️ میانجیگران منطقه‌ای از جمله پاکستان، قطر و عربستان همچنان در تماس با دو طرف هستند
+▪️ گزارش‌ها از آماده بودن یک «یادداشت تفاهم» برای پایان جنگ و آغاز مذاکرات گسترده‌تر خبر می‌دهند
+▪️ با وجود فضای مثبت، اختلافات درباره برنامه هسته‌ای ایران و تحریم‌ها همچنان پابرجاست.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14760
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14760_1779567218.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان باک ماشین ها رو پر کنید و کمربند هاتون رو سفت ببندید. 👽👾
+
+📝 Nick
+</div>
+
+## Persian_Trend_Official — post 14759
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اگر جنگ بشه میام اگر نشه فعلا همون خبر های دیشب هست
+</div>
+
+## Persian_Trend_Official — post 14758
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+دوستان امشب کسالت دارم نمیتونم لایو اجرا کنم
+عذرخواهی میکنم
+</div>
+
+## Persian_Trend_Official — post 14757
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14757_1779567218.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢همزمان با اخبار توافق، جمهوری اسلامی مقر گروه کومله در اربیل عراق را زیر ضرب حملات موشکی و پهپادی برده است.
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14756
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢 فرانس پرس:
+
+💢تماس مکرون با ترامپ و رهبران عرب خلیج‌فارس در حمایت از راه‌حل دیپلماتیک با ایران
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14755
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢ادعای رویترز درباره چارچوب سه مرحله‌ای برای مذاکرات آمریکا و ایران
+
+💢یک چارچوب سه مرحله‌ای برای مذاکرات آمریکا و ایران پیشنهاد شده است:
+
+♦️پایان رسمی جنگ،
+
+♦️حل و فصل بن‌بست تنگه هرمز
+
+♦️باز کردن پنجره مذاکره ۳۰ روزه برای توافقی گسترده‌تر. امکان تمدید نیز وجود دارد.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14754
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 العربیه: تنها چند ساعت تا اعلام توافق میان ایران و آمریکا باقی مانده است
+
+💢خبرگزاری العربیه به نقل از یک منبع ارشد گزارش داد تنها «چند ساعت» تا اعلام رسمی توافق میان تهران و واشینگتن باقی مانده است.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14753
+
+<div align="center">
+  <a href="telegram/content/Persian_Trend_Official_14753_1779567220.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴علی خضریان، عضو کمیسیون امنیت ملی مجلس
+
+💢در هر توافقی ایران حتما باید غرامت جنگ را دریافت کند.
+
+▪️شرایط تنگه هرمز به قبل از جنگ برنخواهد گشت این دستاورد و مطالبه رهبری است .
+
+▪️مطالبه ملت ایران است که از مدیریت تنگه هرمز عقب‌نشینی نشود
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14752
+
+
+
+
+## RadioFarda — post 157502
+
+<div align="center">
+  <a href="https://t.me/radiofarda/157502" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻بشنوید: خبرهای ساعت ۲۱ با رادیوفردا، دوم خرداد ۱۴۰۵‌
+
+@RadioFarda
+</div>
+
+## RadioFarda — post 157501
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مهدی تاج، رئیس فدراسیون فوتبال ایران، اعلام کرد که تیم ملی فوتبال در جریان جام جهانی ۲۰۲۶ در شهر مرزی تیخوانا در مکزیک مستقر خواهد شد. 🔸او روز شنبه دوم خرداد گفت که فدراسیون جهانی فوتبال، فیفا، با درخواست ایران برای انتقال محل اردو از ایالت آریزونا آمریکا…
+</div>
+
+## RadioFarda — post 157500
+
+<div align="center">
+  <img src="telegram/content/RadioFarda_157500_1779567222.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔸مهدی تاج، رئیس فدراسیون فوتبال ایران، اعلام کرد که تیم ملی فوتبال در جریان جام جهانی ۲۰۲۶ در شهر مرزی تیخوانا در مکزیک مستقر خواهد شد.
+
+🔸او روز شنبه دوم خرداد گفت که فدراسیون جهانی فوتبال، فیفا، با درخواست ایران برای انتقال محل اردو از ایالت آریزونا آمریکا موافقت کرده است.
+
+🔸تیخوانا در نزدیکی اقیانوس آرام و مرز مکزیک با آمریکا قرار دارد و به‌گفتهٔ مهدی تاج، این جابه‌جایی محل اردو می‌تواند از مشکلات مربوط به دریافت ویزا جلوگیری کند. او افزود اعضای تیم ملی می‌توانند با پرواز مستقیم ایران‌ایر به مکزیک سفر کنند.
+
+🔸رئیس فدراسیون فوتبال ایران گفت فاصله تیخوانا تا لس‌آنجلس حدود ۵۵ دقیقه پرواز است و این شهر نسبت به اردوی قبلی در آریزونا به محل مسابقات نزدیک‌تر است.
+
+@RadioFarda
+</div>
+
+## IranianMinds — post 20638
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20638_1779567223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 توییت اتاق جنگ اسرائیل:
+
+دوباره ساعت شنی ، رو به اتمام است.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20637
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+آکسیوس شب : تموم شد مذاکرات قطعیه بزودی نهایی میشه تبریک !
+
+آکسیوس روز : ترامپ داره طرح‌ حمله ی جدیدی رو‌ به ایران میچینه و احتمالا بزودی جنگ دوباره شروع میشه .
+
+این چرخه همینطور ادامه داره …
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20636
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک‌ تایمز: ترامپ قبلا نتانیاهو را شریک اصلی خود علیه ایران می‌دانست، اما بعد از متوقف شدن جنگ و آغاز مذاکرات آتش‌بس، اسرائیل عملاً از مذاکرات آمریکا و ایران کنار گذاشته شده است. نتانیاهو امیدوار بود جنگ باعث سقوط حکومت ایران، نابودی برنامه هسته‌ای…
+</div>
+
+## IranianMinds — post 20635
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_20635_1779567223.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 نیویورک‌ تایمز:
+
+ترامپ قبلا نتانیاهو را شریک اصلی خود علیه ایران می‌دانست، اما بعد از متوقف شدن جنگ و آغاز مذاکرات آتش‌بس، اسرائیل عملاً از مذاکرات آمریکا و ایران کنار گذاشته شده است.
+
+نتانیاهو امیدوار بود جنگ باعث سقوط حکومت ایران، نابودی برنامه هسته‌ای و از بین رفتن موشک‌های ایران شود، اما هیچ‌کدام محقق نشد
+
+ترامپ به سمت پایان دادن به جنگ رفت و نفوذ اسرائیل بر توافق نهایی را محدود کرد
+
+این موضوع برای نتانیاهو هم از نظر سیاسی و هم راهبردی ضربه محسوب می‌شود، چون تصویر او به‌عنوان فردی با نفوذ ویژه روی ترامپ تضعیف شده است!
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20634
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+😳 هنوزم واسه کانفیگ هزینه میکنی؟ 🍸 با داییجون رایگان وصل شو 🎁 کافیه فقط دوستاتو بیاری تو ربات و کانفیگتو رایگان از ما تحویل بگیری ⭐ راستی دایی جون اگه تلگرامت پرمیوم باشه به محض استارت کردن ربات صد مگابایت کانفیگ رایگان از دایی هدیه میگیری 🎁 @Daeijoonbot…
+</div>
+
+## IranianMinds — post 20633
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 فاکس نیوز :
+
+تماس های ترامپ با رهبر های منطقه مثبت بوده و‌ مذاکرات پیشرفت قابل توجهی داشته.
+
+@IranianMinds
+</div>
+
+## IranianMinds — post 20632
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بنظرتون باز مثل همیشه دوروز دیگه میزنن یا ایندفه یه خبرایی هست واقعا؟
+</div>
+
+## IranianMinds — post 20631
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴 العربیه :
+
+چیزی تا نهایی شدن توافق میان آمریکا و ایران نمانده …
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 281902
+
+<div align="center">
+  <a href="https://t.me/bbcpersian/281902" target="_blank">📎 Download file</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+📻پادکست برنامه شصت دقیقه روز شنبه ۲ خرداد ۱۴۰۵ است
+
+این نسخه رادیویی برنامه شصت دقیقه تلویزیون فارسی بی‌بی‌سی است که هرشب بعد از پخش، با حجم کم از اپلیکیشن‌های پادگیر و صفحه تلگرام بی‌بی‌سی فارسی در دسترس است.
+
+با هشتگ BBCPersianRadio# با ما در ارتباط باشید.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281901
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مثلث قوه قضاییه، وکلای امنیتی و خبرگزاری میزان؛ چرا اعدام‌ها با «شدت و سرعت» اجرا می‌شود؟
+
+🖌مسعود آذر, بی‌بی‌سی
+
+قوه قضاییه ایران، ۳۱ اردیبهشت ۱۴۰۵ دو نفر را به اتهام «عضویت در گروه‌های تجزیه‌طلب» محکوم و اعدام کرد. خبرگزاری میزان جزئیاتی از زمان بازداشت رامین زله و کریم معروف‌پور ارائه نداد و در باره مراحل دادرسی و محاکمه آنها توضیحی کلی منتشر کرد.
+
+https://bbc.in/4uovMJ3
+@BBCPersian
+</div>
+
+## BBCPersian — post 281900
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایران: آمریکا و اسرائیل مسئول بی‌نتیجه ماندن کنفرانس بازنگری ان‌پی‌تی هستند
+
+ساعاتی پیش گزارش دادیم که کنفرانس بازنگری پیمان منع گسترش سلاح‌های هسته‌ای بدون نتیجه در نیویورک به کار خود خاتمه داده است.
+
+اینک معاون وزیر خارجه ایران در امور بین‌المللی، ایالات متحده، کشورهای غربی و اسرائیل را مسئول پایان بی‌نتیجه یازدهمین کنفرانس بازنگری ان‌پی‌تی خوانده و گفته «مسئولیت این شکست بر عهده این کشورهاست.»
+
+کاظم غریب‌آبادی در پیامی در شبکه ایکس نوشت که دولت‌های غربی تلاش کردند «جای متجاوز و قربانی را عوض کنند» و از حملات آمریکا و اسرائیل به تأسیسات هسته‌ای ایران انتقاد کرد.
+
+آقای غریب‌آبادی نوشت: «ایران اجازه نخواهد داد این کشورها همچنان از مجامع و اسناد بین‌المللی به‌صورت ابزاری و بدون محدودیت برای اهداف سیاسی خود سوءاستفاده کنند.»
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## BBCPersian — post 281899
+
+<div align="center">
+  <a href="telegram/content/BBCPersian_281899_1779567224.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻آخرین خبرهای مهم روز شنبه ۲ خرداد ۱۴۰۵
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281897
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ابراز خوش‌بینی محتاطانه وزیر خارجه آمریکا در مورد گفت‌وگو با ایران
+
+مارکو روبیو با خوش‌بینی محتاطانه‌ نسبت به مذاکرات با ایران گقت دولت دونالد ترامپ ممکن است به زودی «حرفی برای گفتن» در این باره داشته باشد.
+
+اظهارات وزیر خارجه آمریکا در سفر به هند مطرح شد.
+
+تام بیتمن، خبرنگار بی‌بی‌سی، از او پرسید که آیا دولت آمریکا امروز جوابی از ایران گرفته است. او پاسخ داد که دیپلماسی در حال پیشرفت است و ممکن است امروز یا ظرف چند روز آینده خبری منتشر شود هرچند که نمی‌توان مطمئن بود.
+
+او بار دیگر تاکید کرد که ایران باید اورانیوم غنی‌شده با خلوص بالا را تحویل دهد و عوارض ترانزیت از تنگه هرمز دریافت نکند.
+
+آقای روبیو امروز در دیدار با نخست‌وزیر هند درباره بحران در خاورمیانه گفت‌وگو کرد.
+
+هند از جمله کشورهایی است که بیشترین آسیب را از بسته شدن تنگه هرمز دیده است.
+
+به نظر می‌رسد یکی از راه‌حل‌های پیشنهادی آقای روبیو، تلاش برای متقاعد کردن هند به خرید نفت بیشتر از آمریکا است حتی اگر گران‌تر باشد و مسافت بیشتری را طی کند
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## BBCPersian — post 281896
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻چرا رژه با نمادهای ساواک در اروپا جنجالی شد؟
+
+در روزهای گذشته تجمع برخی از پادشاهی‌خواهان در چندین شهر آلمان با نمادهای ساواک، سازمان اطلاعات و امنیت در دوران محمدرضا شاه پهلوی، حسابی بحث‌برانگیز شده و دوباره توجه‌ها را نسبت به عملکرد این سازمان امنیتی جلب کرده است. مخالفان می‌گویند با نمادهای یک سازمانی امنیتی که در سرکوب و شکنجه نقش داشته نمی‌توان برای دمکراسی در ایران مبارزه کرد و در طرف مقابل طرفداران می‌گویند ساواک تنها برای برقراری امنیت کشور تلاش می‌کرد.
+
+گزارش فرزاد صیفی‌کاران، از بخش راستی‌آزمایی بی‌بی‌سی، با این هشدار که حاوی روایت‌هایی است که برای برخی ممکن است آزاردهنده باشد.
+
+@BBCPersian
+</div>
+
+## BBCPersian — post 281895
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻رویترز: ترامپ امروز با رهبران کشورهای منطقه تلفنی صحبت می‌کند
+
+خبرگزاری رویترز به نقل از یک مقام از کشورهای عربی گفت که دونالد ترامپ، رئیس‌جمهور آمریکا، امروز گفت‌وگویی تلفنی با برخی از رهبران کشورهای منطقه خواهد داشت.
+
+بر اساس این گزارش قرار است آقای ترامپ با رهبران عربستان سعودی، قطر، امارات متحده عربی، مصر، ترکیه و پاکستان تلفنی صحبت کند.
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## BBCPersian — post 281894
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻ایران و پاکستان از تلاش برای تنظیم یادداشت تفاهم خبر دادند
+
+سخنگوی وزارت خارجه ایران و یک مقام پاکستانی گفته‌اند که طرف‌ها در حال کار به روی متن یادداشت تفاهم درباره توافق ایران و آمریکا هستند.
+
+اسماعیلی بقایی، سخنگوی وزارت خارجه ایران، درباره نتایج تازه‌ترین میانجیگری‌های پاکستان بین ایران و آمریکا گفته است که «ما در مرحله نهایی‌سازی یادداشت تفاهم هستیم.»
+
+آقای بقایی گفت: «موضوعاتی که در این مرحله درباره آنها بحث می‌شود به طور کلی بر خاتمه جنگ متمرکز است. موضوع پایان یافتن تعرضات دریایی آمریکا و موضوعات مرتبط با آزاد شدن اموال بلوکه شده ایران، از عمده مواردی هستند که در این یادداشت تفاهم به آنها پرداخته می‌شود.»
+
+همزمان یک یک مقام امنیتی پاکستانی هم به خبرگزاری رویترز گفت که «یادداشت تفاهم برای پایان دادن به جنگ میان آمریکا و ایران در حال نهایی‌سازی و تنظیم جزئیات است.»
+
+آمریکا می‌گوید در حال بررسی پاسخ ایران است و احتمال توافق یا درگیری مجدد در حال حاضر پنجاه پنجاه است.
+
+https://bbc.in/4dtIPCY
+@BBCPersian
+</div>
+
+## Dirty_Kids — post 390037
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390037_1779567226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+اون کوه رو انقدر دفن نکردید تبدیل به کود شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390036
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+باراک راوید هر ده دقیقه: 🚨🚨🚨🚨🚨
+
+
+
+@Dirty_Kids 👻
+</div>
+
+## Dirty_Kids — post 390035
+
+<div align="center">
+  <img src="telegram/content/Dirty_Kids_390035_1779567226.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بعد عدم توانایی مردم واسه خرید ماشین، حالا دیگه گرفتن گواهینامه هم داره به یه آرزو تبدیل میشه؛
+
+هزینه دریافت گواهینامه رانندگی با افزایش 56 درصدی نسبت به قبل، ناقابل 15 میلیون تومن شد.
+
+
+@Dirty_Kids 👻
+</div>
+
+## Hranews — post 113122
+
+<div align="center">
+  <img src="telegram/content/Hranews_113122_1779567227.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+بیژن کاظمی به بیش از ۳۷ سال حبس محکوم شد
+
+
+❗️
+❗️
+❗️
+❗️
+❗️– بیژن کاظمی، زندانی سیاسی محبوس در زندان اوین، با حکم شعبه ۱۵ دادگاه انقلاب تهران در مجموع به ۳۷ سال و شش ماه حبس محکوم شد.
+
+به گزارش خبرگزاری هرانا، ارگان خبری مجموعه فعالان حقوق بشر در ایران، بیژن کاظمی به حبس محکوم شد.
+
+بر اساس حکمی که توسط شعبه ۱۵ دادگاه انقلاب تهران به ریاست قاضی ابوالقاسم صلواتی صادر و اخیراً ابلاغ شده است، وی از بابت اتهامات مطروحه در پرونده خود در مجموع به ۳۷ سال و شش ماه حبس محکوم شده است.
+
+بیژن کاظمی که تاکنون در بازداشت موقت به‌ سر می‌برد، بهمن ماه سال گذشته با اتهاماتی از جمله اجتماع و تبانی برای ارتکاب جرم علیه امنیت داخلی و خارجی و عضویت در جمعیت‌های معارض کشور در شعبه ۱۵ دادگاه انقلاب تهران محاکمه شده بود.
+
+یک منبع مطلع در این خصوص به هرانا گفت: "وی در این پرونده همچنین با اتهامی مرتبط با «تهیه سلاح برای ضارب دو قاضی رازینی و مقیسه» مواجه شد؛ اتهامی که پیش‌تر توسط ضابطان امنیتی رد شده و مقام‌های قضایی کوهدشت نیز درباره آن سکوت کرده بودند."
+
+ادامه مطلب
+
+#بیژن_کاظمی
+
+↘️
+@hranews_bot تماس ✉️ - @Hranews کانال هرانا 🆑
+</div>
+
+## manototv — post 105783
+
+<div align="center">
+  <a href="telegram/content/manototv_105783_1779567227.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+راهپیمایی ایرانیان مونترآل، دوم خرداد ۱۴۰۵
+</div>
+
+## manototv — post 105782
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+مهدیس نظری
+۷ ساله بود.
+
+عاشق اسکیت بود.
+عاشق شعر خواندن.
+شاهنامه...
+
+۹ اسفند،
+در حمله به مدرسه شجره طیبه میناب،
+او و ۱۲۰ کودک دیگر
+جانشان را از دست دادند
+</div>
+
+## manototv — post 105781
+
+<div align="center">
+  <a href="telegram/content/manototv_105781_1779567229.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از ایران؛
+«مرسی که همیشه صدای ما بودید»
+</div>
+
+## alonews — post 122169
+
+<div align="center">
+  <a href="telegram/content/alonews_122169_1779567230.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سی‌ان‌ان به نقل از یک منبع اسرائیلی گزارش داد: نتانیاهو در تمام طول شب شنبه با مقامات آمریکایی در تماس بوده و انتظار می‌رود به زودی با ترامپ نیز صحبت کند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122168
+
+<div align="center">
+  <a href="telegram/content/alonews_122168_1779567230.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈نیویورک تایمز: مقام‌های ایران و آمریکا از پیشرفت در مذاکرات خبر می‌دهند، در حالی که سرنوشت آتش‌بس همچنان در هاله‌ای از ابهام قرار دارد
+
+
+🔴در شرایطی که مردم سراسر خاورمیانه خود را برای احتمال ازسرگیری درگیری‌ها آماده می‌کنند، مقام‌های دو طرف اعلام کرده‌اند نشانه‌هایی از پیشرفت و حرکت به سوی یک توافق دیده می‌شود.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122165
+
+<div align="center">
+  <a href="telegram/content/alonews_122165_1779567231.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈پهپادهای FPV حزب‌الله به حملات خود به تجهیزات ارتش اسرائیل در جنوب لبنان ادامه می‌دهند: ویدئوی اول: یک پهپاد FPV به یک خودروی HEMTT ارتش اسرائیل در سایت خربت المناره واقع در مرز جنوبی لبنان حمله می‌کند (۵ مه)
+
+
+🔴ویدئوی دوم: یک پهپاد FPV به یک بیل مکانیکی ارتش اسرائیل در خیام حمله می‌کند (۱۵ مه)
+
+
+🔴ویدئوی سوم: یک پهپاد FPV به یک خودروی زرهی نامر ارتش اسرائیل در طیبه حمله می‌کند (۱۶ مه)
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122164
+
+<div align="center">
+  <a href="telegram/content/alonews_122164_1779567233.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 معاون رئیس‌جمهور جی‌دی ونس، وزیر جنگ هگست، رئیس ستاد مشترک کین و کل شورای امنیت ملی توسط رئیس‌جمهور ترامپ به اتاق وضعیت کاخ سفید برای گفتگو درباره ایران احضار شده‌اند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122163
+
+<div align="center">
+  <img src="telegram/content/alonews_122163_1779567233.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+قیمت استثنایی گیگی
+9️⃣
+8️⃣
+1️⃣
+
+تحویل زیر یک دقیقه
+✅
+دارای لینک سابسکریشن جهت دیدن حجم و کنترل مصرف
+✅
+بدون قطعی 
+✅
+بدون محدودیت کاربر و زمان
+✅
+جمینایو چت جی بی تی و... کامل اوکیه با سرورامون
+✅
+
+🏪پشتیبانی کامل
+✅
+شروع فعالیت از سال 2022 
+✅
+پرداخت ریالی
+✅
+
+ضریب و این چیزا ندارن و تا آخرین مگابایت برای پشتیبانیش درختمتیم
+🥂
+
+
+💤این تخفیف فقط تا ۱۲ شب فعاله
+💤
+
+
+
+⭐️ @Napsternetiran_bot
+〰️〰️〰️〰️〰️〰️〰️
+
+
+🔶 @Napsternetvirani
+</div>
+
+## alonews — post 122162
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کانال عبری کان: «ساعت‌های حساس: در اسرائیل منتظرند ببینند آیا تلاش‌های دیپلماتیک فشرده، به ویژه از سوی پاکستان و قطر، به امضای یادداشت تفاهم بین ایران و ایالات متحده منجر خواهد شد یا نه.
+
+
+🔴این در حالی است که نخست‌وزیر بنیامین نتانیاهو به سمت ازسرگیری جنگ و حملات علیه ایران فشار آورده است.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122161
+
+<div align="center">
+  <a href="telegram/content/alonews_122161_1779567234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈فاکس نیوز: «شما نوک نیزه خواهید بود.»
+
+
+🔴ارتش اکنون چهار ماه زودتر از برنامه به هدف استخدامی خود در سال ۲۰۲۶ رسیده است، طبق گفته پیت هگست، وزیر جنگ.
+
+
+🔴هگستث در سخنرانی فارغ‌التحصیلی در وست پوینت اعلام کرد که ارتش چهار ماه زودتر به این نقطه عطف رسیده و گفت که این نیرو در حال آماده‌سازی برای جذب ۶۱,۵۰۰ سرباز جدید است.
+
+
+🔴این اعلامیه در حالی صورت می‌گیرد که پنتاگون با تنش‌های فزاینده جهانی و تمرکز مجدد بر آمادگی نظامی روبرو است.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122160
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈کنسول جمهوری آذربایجان در تبریز بر اثر تصادف در اتوبان جلفا-تبریز جان باخت.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122159
+
+<div align="center">
+  <a href="telegram/content/alonews_122159_1779567234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خبرنگار لبنانی در شبکه سه: حزب‌الله بر روی نابودکردن گنبد آهنین اسرائیل تمرکز کرده است!
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122158
+
+<div align="center">
+  <a href="telegram/content/alonews_122158_1779567234.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈ادعای رویترز درباره چارچوب سه مرحله‌ای برای مذاکرات آمریکا و ایران
+
+
+🔴پایان رسمی جنگ، حل و فصل بن‌بست تنگه هرمز و باز کردن پنجره مذاکره ۳۰ روزه برای توافقی گسترده‌تر. امکان تمدید نیز وجود دارد.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122157
+
+<div align="center">
+  <a href="telegram/content/alonews_122157_1779567235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 فیلمی از حمله پهپادی ایرانی به حزب آزادی کردستان (پاک) در استان اربیل، شمال عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122156
+
+<div align="center">
+  <a href="telegram/content/alonews_122156_1779567235.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 پهپادهای ایران مواضع گروه های جدایی طلب در کردستان عراق را هدف قرار دادند.
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122155
+
+<div align="center">
+  <a href="telegram/content/alonews_122155_1779567236.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈مکرون در تماس با ترامپ و سران خلیج فارس، خواستار راهکار دیپلماتیک و توافق با ایران شد
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122154
+
+<div align="center">
+  <a href="telegram/content/alonews_122154_1779567236.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈 شنیده شدن صدای انفجار در اربیل عراق
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122153
+
+<div align="center">
+  <a href="telegram/content/alonews_122153_1779567236.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈خضریان، عضو کمیسیون امنیت ملی مجلس: در هر توافقی ایران حتما باید غرامت جنگ را دریافت کند/ مطالبه ملت ایران است که از مدیریت تنگه هرمز عقب‌نشینی نشود
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122152
+
+<div align="center">
+  <a href="telegram/content/alonews_122152_1779567238.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈یک دیپلمات منطقه‌ای به فاکس نیوز:
+«تماس سران عرب و ترامپ بسیار مثبت بود. پیشرفت خوبی در حال انجام است. رهبران منطقه از این پیشرفت که ترامپ با مذاکرات به دست آورد، حمایت کردند.»
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122151
+
+<div align="center">
+  <a href="telegram/content/alonews_122151_1779567239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴فوری / هم اکنون جلسه اضطراری امنیت ملی دولت ترامپ در اتاق جنگ کاخ سفید در حال برگزاری است. 
+✅ @AloNews خبر جنگ
+</div>
+
+## alonews — post 122150
+
+<div align="center">
+  <a href="telegram/content/alonews_122150_1779567239.webm" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+👈سفیر ایران در پاکستان: چند دقیقه پیش، جناب وزیر محترم کشور پاکستان، برادر عزیزم محسن نقوی، پس از بازگشت از تهران، مرا از دستاوردهای مذاکرات با مقامات کشورم مطلع کردند.
+
+
+🔴با خوش‌بینی محتاطانه می‌توان امیدوار بود که در صورت پایبندی کافی طرف مقابل، گام مثبتی در حال شکل‌گیری است که نتیجه مواضع جمهوری اسلامی ایران مبتنی بر عزت، ایستادگی نیروهای مسلح شجاع و مقاومت ملت شجاع ایران، همچنین ابتکار و تلاش‌های فداکارانه میانجی پاکستان است
+
+
+✅ @AloNews خبر جنگ
+</div>
+
+---
 📅 بروزرسانی: 1405/03/02 22:26
 ---
 
