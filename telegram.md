@@ -7,6 +7,296 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/03 03:49
+---
+
+## VahidOOnLine — post 241842
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241842_1779581968.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام اسرائیلی گزارش داد استیو ویتکاف، فرستاده ویژه ترامپ، در حال پیگیری یک توافق دیپلماتیک با تهران «به هر قیمتی» است و ترامپ را تحت فشار قرار می‌دهد تا عملیات نظامی را از سر نگیرد.
+
+این گزارش در شرایطی منتشر می‌شود که برخی قانون‌گذاران جمهوری‌خواه و مقام‌های حوزه امنیت ملی آمریکا همچنان درباره پیامدهای هرگونه توافقی که به جمهوری اسلامی امکان بازسازی سیاسی و نظامی بدهد، هشدار می‌دهند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241839
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_241839_1779581969.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده از یک خبرنگار سی‌بی‌اس، لحظات دلهره‌آور تیراندازی در نزدیکی کاخ سفید را در روز شنبه دوم خرداد نشان می‌دهد.
+خبرگزاری رویترز به نقل از یک مقام پلیس نوشت که مظنون تیراندازی در نزدیکی کاخ سفید دستگیر و به بیمارستان منتقل شده است. او گفت که مظنون به ایست بازرسی نزدیک کاخ سفید نزدیک شد و به سمت ماموران شلیک کرد. به گفته این مقام پلیس، هیچ یک از ماموران آسیب ندیدند.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241838
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241838_1779581970.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️لیندسی گراهام، سناتور جمهوری‌خواه آمریکا، با انتشار پیامی در اکس درباره توافق احتمالی با تهران نوشت: «اگر در منطقه این‌گونه برداشت شود که توافق با ایران به این رژیم اجازه می‌دهد بقای خود را حفظ کند و به مرور زمان قدرتمندتر شود، ما روی آتش درگیری‌ها در لبنان و عراق بنزین ریخته‌ایم.» گراهام با تاکید بر پیامدهای منطقه‌ای این تصمیم افزود: «توافقی که تصور شود به رژیم ایران اجازه بقا می‌دهد و توانایی کنترل تنگه هرمز را در آینده برای آن حفظ می‌کند، حزب‌الله در لبنان و شبه‌نظامیان شیعه در عراق را به شدت تقویت خواهد کرد.»
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241837
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241837_1779581971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، هشدار داد هر توافقی که به بقای حکومت ایران و بازگشت تدریجی نفوذ منطقه‌ای آن منجر شود، می‌تواند خاورمیانه را بی‌ثبات‌تر کرده و گروه‌های نیابتی تهران را تقویت کند.
+او در شبکه ایکس نوشت اگر در منطقه چنین برداشت شود که توافق با حکومت ایران به این رژیم اجازه می‌دهد زنده بماند و قدرتمندتر شود، «بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم» و حزب‌الله لبنان و شبه‌نظامیان شیعه در عراق به‌شدت تقویت خواهند شد.
+گراهام با تاکید بر اینکه ادامه فشار بر تهران برای مهار گروه‌های نیابتی آن ضروری است، هشدار داد جمهوری اسلامی ممکن است از مذاکرات برای تجدید قوا استفاده کند.
+
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241836
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241836_1779581971.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️به گزارش «سی‌ان‌ان»، یک مقام مجری قانون اعلام کرد که در پی تیراندازی عصر شنبه در تقاطع خیابان هفدهم و پنسیلوانیا در مجاورت کاخ سفید، دو نفر در جریان مواجهه با ماموران سرویس مخفی آمریکا هدف گلوله قرار گرفته‌اند؛ این حادثه که منجر به برقراری وضعیت قرنطینه امنیتی و واکنش فوری نیروهای امنیتی، ماموران اف‌بی‌آی و استقرار نیروهای مسلح به سلاح‌های تهاجمی در چمن شمالی شد، پس از پناه گرفتن اضطراری خبرنگاران در اتاق نشست مطبوعاتی و با لغو قرنطینه در ساعت ۶:۴۵ عصر به وقت محلی خاتمه یافت. کاش پاتل، رئیس اف‌بی‌آی، با تایید حضور مأموران این سازمان در صحنه از پشتیبانی کامل از سرویس مخفی خبر داد؛ این در حالی است که در زمان وقوع حادثه دونالد ترامپ در محل اقامت خود در کاخ سفید حضور داشت و این تیراندازی دقیقا کمتر از یک ماه پس از حادثه سوءقصد نافرجام کول توماس آلن به ترامپ در جریان شام انجمن خبرنگاران، بار دیگر واشنگتن را در وضعیت هشدار بالایی قرار داده است.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241835
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_241835_1779581972.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد پلیس آمریکا درباره تیراندازی در اطراف کاخ سفید گفت: یک مظنون به ایست بازرسی اطراف کاخ سفید نزدیک شد و به سوی ماموران شلیک کرد، اما او هدف گلوله قرار گرفت و به بیمارستان منتقل شد.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 241834
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️تصاویر منتشر شده توسط خبرنگار شبکه «سی‌ان‌ان»، لحظات شلیک گلوله در نزدیکی کاخ سفید در واشنگتن دی‌سی را نشان می‌دهد. بر اساس گزارش‌های اولیه، دو نفر در ضلع غربی کاخ سفید و در نزدیکی «گیت ۱۷» با سلاح کمری به سمت ساختمان کاخ سفید شلیک کرد. در پی این اقدام، ماموران سرویس مخفی ایالات متحده بلافاصله وارد عمل شدند، به این تیراندازی پاسخ دادند و ضاربان را هدف قرار داده‌اند و مهار کردند.
+گزارش‌ها حاکی از آن است که در مجموع حدود ۳۰ گلوله در خارج از محوطه شلیک شده است. ماموران سرویس مخفی با حمل سلاح‌های خود در محوطه چمن شمالی مستقر شدند و خبرنگارانی را که در این بخش حضور داشتند، به سمت اتاق کنفرانس مطبوعاتی هدایت کردند تا پناه بگیرند.
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12281
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تیرانداز به هلاکت رسید و فرد حاضر زنده و هوشیار است. هر دو به بیمارستان منتقل شده‌اند.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342175
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342175_1779581973.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+NEW: The suspect in the shooting near the White House is dead, and one bystander was wounded, according to the White House. FOX News' Alex Hogan breaks down the moments leading up to the incident.
+</div>
+
+## FoxNewsTwitter — post 342174
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342174_1779581975.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+JUST IN: FOX News' Chad Pergram reports that two people were wounded in a shooting near the White House, and that the lockdown has been lifted.
+</div>
+
+## IranIntlTV — post 338679
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338679_1779581977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام اسرائیلی گزارش داد استیو ویتکاف، فرستاده ویژه ترامپ، در حال پیگیری یک توافق دیپلماتیک با تهران «به هر قیمتی» است و ترامپ را تحت فشار قرار می‌دهد تا عملیات نظامی را از سر نگیرد.
+
+این گزارش در شرایطی منتشر می‌شود که برخی قانون‌گذاران جمهوری‌خواه و مقام‌های حوزه امنیت ملی آمریکا همچنان درباره پیامدهای هرگونه توافقی که به جمهوری اسلامی امکان بازسازی سیاسی و نظامی بدهد، هشدار می‌دهند.
+https://iranintl.com/202605240801
+</div>
+
+## IranIntlTV — post 338678
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338678_1779581977.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+کانال ۱۲ اسرائیل به نقل از یک مقام اسرائیلی گزارش داد استیو ویتکاف، فرستاده ویژه ترامپ، در حال پیگیری یک توافق دیپلماتیک با تهران «به هر قیمتی» است و ترامپ را تحت فشار قرار می‌دهد تا عملیات نظامی را از سر نگیرد.
+
+این گزارش در شرایطی منتشر می‌شود که برخی قانون‌گذاران جمهوری‌خواه و مقام‌های حوزه امنیت ملی آمریکا همچنان درباره پیامدهای هرگونه توافقی که به جمهوری اسلامی امکان بازسازی سیاسی و نظامی بدهد، هشدار می‌دهند.
+https://iranintl.com/202605240801
+</div>
+
+## IranIntlTV — post 338677
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_338677_1779581978.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده از یک خبرنگار سی‌بی‌اس، لحظات دلهره‌آور تیراندازی در نزدیکی کاخ سفید را در روز شنبه دوم خرداد نشان می‌دهد.
+خبرگزاری رویترز به نقل از یک مقام پلیس نوشت که مظنون تیراندازی در نزدیکی کاخ سفید دستگیر و به بیمارستان منتقل شده است. او گفت که مظنون به ایست بازرسی نزدیک کاخ سفید نزدیک شد و به سمت ماموران شلیک کرد. به گفته این مقام پلیس، هیچ یک از ماموران آسیب ندیدند.
+</div>
+
+## IranIntlTV — post 338676
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338676_1779581979.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+لیندزی گراهام، سناتور جمهوری‌خواه، هشدار داد هر توافقی که به بقای حکومت ایران و بازگشت تدریجی نفوذ منطقه‌ای آن منجر شود، می‌تواند خاورمیانه را بی‌ثبات‌تر کرده و گروه‌های نیابتی تهران را تقویت کند.
+او در شبکه ایکس نوشت اگر در منطقه چنین برداشت شود که توافق با حکومت ایران به این رژیم اجازه می‌دهد زنده بماند و قدرتمندتر شود، «بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم» و حزب‌الله لبنان و شبه‌نظامیان شیعه در عراق به‌شدت تقویت خواهند شد.
+گراهام با تاکید بر اینکه ادامه فشار بر تهران برای مهار گروه‌های نیابتی آن ضروری است، هشدار داد جمهوری اسلامی ممکن است از مذاکرات برای تجدید قوا استفاده کند.
+
+https://iranintl.com/202605237902
+</div>
+
+## IranIntlTV — post 338675
+
+<div align="center">
+  <img src="telegram/content/IranIntlTV_338675_1779581980.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+یک مقام ارشد پلیس آمریکا درباره تیراندازی در اطراف کاخ سفید گفت: یک مظنون به ایست بازرسی اطراف کاخ سفید نزدیک شد و به سوی ماموران شلیک کرد، اما او هدف گلوله قرار گرفت و به بیمارستان منتقل شد.
+https://iranintl.com/202605234529
+</div>
+
+## ManotoTV — post 105790
+
+<div align="center">
+  <a href="telegram/content/ManotoTV_105790_1779581980.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از امارات
+«می‌گفت مردم ایران عوض شده‌اند…
+و این بار باید هوشیارتر، عاقل‌تر و متفاوت‌تر عمل کنند.»
+</div>
+
+## FarsiVOA — post 218484
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218484_1779581982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️گزارش مایکل لیپین، خبرنگار صدای آمریکا از تیراندازی شنبه عصر در اطراف کاخ سفید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218483
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔺گزارش خبرنگار صدای آمریکا از محل تیراندازی در اطراف کاخ سفید؛ صدای ده‌ها گلوله شنیده شد
+
+▪️خبرنگار صدای آمریکا در حوزه کاخ سفید، مایکل لیپین، عصر شنبه از نزدیکی محل تیراندازی در اطراف کاخ سفید گزارش کرد.
+
+⬇️ بیشتر بخوانید:
+https://ir.voanews.com/a/8153117.html
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218482
+
+<div align="center">
+  <a href="telegram/content/FarsiVOA_218482_1779581982.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️ویدیوی صدای آمریکا از حضور نیروهای امنیتی پس از گزارش‌ها از تیراندازی شنبه عصر در نزدیکی کاخ سفید
+@FarsiVOA
+</div>
+
+## FarsiVOA — post 218480
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+⚡️نیروهای گارد ملی و دیگر ماموران امنیتی شنبه عصر و در پی گزارش‌ها از تیراندازی در اطراف کاخ سفید، در محل استقرار یافتند.
+@FarsiVOA
+</div>
+
+## Persian_Trend_Official — post 14810
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+💢گوشه ای از پیش بینی های نخبگان نظامی جمهوری اسلامی ...
+
+
+💢شب شما بخیر 🫶
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## Persian_Trend_Official — post 14809
+
+<div align="center">
+  <img src="telegram/content/Persian_Trend_Official_14809_1779581983.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴لیندزی گراهام، سناتور جمهوری‌خواه،
+
+💢هشدار داد هر توافقی که به بقای حکومت ایران و بازگشت تدریجی نفوذ منطقه‌ای آن منجر شود، می‌تواند خاورمیانه را بی‌ثبات‌تر کرده و گروه‌های نیابتی تهران را تقویت کند.
+
+💢او در شبکه ایکس نوشت اگر در منطقه چنین برداشت شود که توافق با حکومت ایران به این رژیم اجازه می‌دهد زنده بماند و قدرتمندتر شود، «بنزین روی آتش درگیری‌ها در لبنان و عراق ریخته‌ایم» و حزب‌الله لبنان و شبه‌نظامیان شیعه در عراق به‌شدت تقویت خواهند شد.
+
+💢گراهام با تاکید بر اینکه ادامه فشار بر تهران برای مهار گروه‌های نیابتی آن ضروری است، هشدار داد جمهوری اسلامی ممکن است از مذاکرات برای تجدید قوا استفاده کند.
+
+🫆:Tony
+
+📌 @persian_trend_official
+پرشین ترند | متفاوت‌ترین کانال نظامی
+</div>
+
+## BBCPersian — post 281909
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻خبرنگاران در پی شنیده‌شدن تیراندازی احتمالی در نزدیکی کاخ سفید به پناهگاه رفتند
+
+چند خبرنگار حاضر در کاخ سفید از شنیده شدن صدای احتمالی تیراندازی در نزدیکی این ساختمان خبر داده‌اند.
+
+https://bbc.in/3PUAMWO
+@BBCPersian
+</div>
+
+## manototv — post 105790
+
+<div align="center">
+  <a href="telegram/content/manototv_105790_1779581983.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+تماسی از امارات
+«می‌گفت مردم ایران عوض شده‌اند…
+و این بار باید هوشیارتر، عاقل‌تر و متفاوت‌تر عمل کنند.»
+</div>
+
+---
 📅 بروزرسانی: 1405/03/03 02:47
 ---
 
