@@ -7,6 +7,109 @@
 <!-- MSG START -->
 
 ---
+📅 بروزرسانی: 1405/03/10 03:12
+---
+
+## VahidOOnLine — post 242966
+
+<div align="center">
+  <img src="telegram/content/VahidOOnLine_242966_1780184575.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+♦️دونالد ترامپ، رئیس‌جمهوری ایالات متحده، روز شنبه با انتشار تصویر گرافیکی تولیدشده با هوش مصنوعی در شبکه اجتماعی «تروث سوشال»، توجه رسانه‌ها را به خود جلب کرد. در این تصویر ترامپ در جامه یک فرمانده نظامی ارشد با نشان عقاب طلایی آمریکا به تصویر کشیده شده که با انگشت به مخاطب اشاره می‌کند. در پس‌زمینه این طرح، نمادهای قدرت نظامی ایالات متحده از جمله جنگنده‌های پیشرفته در حال صعود و ناوشکن‌ها در کنار کشتی‌های بادبانی تاریخی با پرچم برافراشته آمریکا در میان موج‌های خروشان دریا دیده می‌شوند. ترامپ در حاشیه این تصویر نوشت: «شما دارید گیج و سردرگم می‌شوید».
+‌🇸🇦 Indypersian
+
+🤖 @VahidOOnLine
+</div>
+
+## VahidOOnLine — post 242965
+
+<div align="center">
+  <a href="telegram/content/VahidOOnLine_242965_1780184576.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+‌🏁 🇬🇧 IranintlTV
+
+🤖 @VahidOOnLine
+</div>
+
+## WithYashar — post 12971
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+فارس : براساس برنامه‌ریزی‌های انجام‌شده، حجاج ایرانی از فرودگاه جده به شش فرودگاه شامل تهران، مشهد، زاهدان، شیراز، گرگان و اصفهان منتقل خواهند شد.
+
+نخستین پرواز بازگشت حجاج روز ۱۱ خردادماه(دوشنبه) از جده به مقصد تهران انجام می‌شود.
+@withyashar
+</div>
+
+## FoxNewsTwitter — post 342437
+
+<div align="center">
+  <a href="telegram/content/FoxNewsTwitter_342437_1780184578.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+A suspected drug-trafficking boat erupts into flames after being struck by U.S. forces in the eastern Pacific.
+
+New video, released by U.S. Southern Command, shows the moment the vessel is hit during an operation carried out Friday.
+
+SOUTHCOM says three "male narco-terrorists" were killed in the strike.
+</div>
+
+## FoxNewsTwitter — post 342436
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+‌Fox News (Twitter/X)
+
+👉 Full story here:
+</div>
+
+## FoxNewsTwitter — post 342435
+
+<div align="center">
+  <img src="telegram/content/FoxNewsTwitter_342435_1780184580.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+Fox News (Twitter/X)
+
+Proud Boys and communist activists clash outside Newark ICE detention center as Gov. Sherrill admits 5 of 6 people arrested this week came from out of state. What started as a protest over detainee conditions has become a full-blown ideological battleground — with 'national extremist groups' on both sides driving the chaos, not local residents.
+</div>
+
+## IranIntlTV — post 339802
+
+<div align="center">
+  <a href="telegram/content/IranIntlTV_339802_1780184582.mp4" target="_blank">🎬 Download video</a>
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+ویدیوی منتشرشده در رسانه‌های اجتماعی وابسته به جمهوری اسلامی نشان می‌دهد سپاه پاسداران، شامگاه شنبه نهم خرداد، قایق تندرویی را همراه با موشک ضدکشتی برای حامیان حکومت در میدان انقلاب تهران به نمایش گذاشت.
+</div>
+
+## IranianMinds — post 21096
+
+<div align="center">
+  <img src="telegram/content/IranianMinds_21096_1780184583.jpg" alt="Photo">
+</div>
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔴پست ترامپ:
+
+@IranianMinds
+</div>
+
+## BBCPersian — post 282453
+
+
+<div dir='rtl' style='font-family: "Vazirmatn", Tahoma, sans-serif;'>
+🔻مراسم خاکسپاری مجتبی و میثم ویسی، دو برادر کُرد یارسان که دو روز پیش با شلیک نیروهای سپاه پاسداران در منطقه دالاهو کرمانشاه جان باخته بودند، امروز برگزار شد.
+
+سوران قربانی گزارش می‌دهد
+@BBCPersian
+</div>
+
+---
 📅 بروزرسانی: 1405/03/10 02:27
 ---
 
